@@ -4,3 +4,4 @@ Wszystkie gwiazdy też chorują na choroby psychiczne i autyzm. To wszystko prze
 Żydzi od zarania dziejów cierpieli na choroby psychiczne i strach przed zasilaniem elektrycznym całkowicie ze wzgłędów chorób psychicznych i BHP dlatego zbudowali w Bełchtowie olimpijską pedałownie dla elektrowni w Bełchatowie. 
 Tokamaków nie będzie przez sportowców i schizofremików. Chodzi o wybuch elektrowni. Ci od BHP i sportu mają autyzm. Chcą aby karzyd był mijonerem Lotto i nie wydawał pieniedzy na rower elektryczny czy auto elektryczne czy auto na paliwa. 
 Te afery to Wawelski i Bezosy Bespieka jak kiedyś był w bezpiece olimpijczyków Wałęsa. To autyzm z izraela. 
+Oni wymyślili w 21 wieku karę liżą się faceci w makjarzu na ulicy liżą się kobiety w makijarzu na ulicy całe to LGBT to niepełsnosprawny jak ciężąrna lezba to też wózek inwalidzki. 
