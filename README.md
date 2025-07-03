@@ -5,3 +5,4 @@ Wszystkie gwiazdy też chorują na choroby psychiczne i autyzm. To wszystko prze
 Tokamaków nie będzie przez sportowców i schizofremików. Chodzi o wybuch elektrowni. Ci od BHP i sportu mają autyzm. Chcą aby karzyd był mijonerem Lotto i nie wydawał pieniedzy na rower elektryczny czy auto elektryczne czy auto na paliwa. 
 Te afery to Wawelski i Bezosy Bespieka jak kiedyś był w bezpiece olimpijczyków Wałęsa. To autyzm z izraela. 
 Oni wymyślili w 21 wieku karę liżą się faceci w makjarzu na ulicy liżą się kobiety w makijarzu na ulicy całe to LGBT to niepełsnosprawny jak ciężąrna lezba to też wózek inwalidzki jak i zegarki z terminatorami z DNA olimpijczykami też LGBT. Ich to tylko pod kościół. 
+Miłość tora do lokiego to też inwalidzi. Te postacie historyczne to inwalidzi LGBT i ci hierachowie to inwalidzi brzydzą się miłości z kobietą. 
