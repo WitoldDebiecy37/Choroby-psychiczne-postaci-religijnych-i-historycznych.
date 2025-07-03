@@ -3,4 +3,4 @@ Postacie religijne i historyczne cierpiały na choroby psychiczne jak ci od od o
 Wszystkie gwiazdy też chorują na choroby psychiczne i autyzm. To wszystko przez to że Ewa rodziła za karę wszystkie dzieci u żydów jakieś 70 000 lat temu. Te wszystkie postacie religijne i historyczne i gwiazdy to chorzy ze szpitali psychiatrycznych i przytulisk i zakłaów dla obłąkanych. 
 Żydzi od zarania dziejów cierpieli na choroby psychiczne i strach przed zasilaniem elektrycznym całkowicie ze wzgłędów chorób psychicznych i BHP dlatego zbudowali w Bełchtowie olimpijską pedałownie dla elektrowni w Bełchatowie. 
 Tokamaków nie będzie przez sportowców i schizofremików. Chodzi o wybuch elektrowni. Ci od BHP i sportu mają autyzm. Chcą aby karzyd był mijonerem Lotto i nie wydawał pieniedzy na rower elektryczny czy auto elektryczne czy auto na paliwa. 
-Te afery to Wawelski i Bezosy Bespieka jak kiedyś był w bezpiece olimpijczyków Wałęsa. 
+Te afery to Wawelski i Bezosy Bespieka jak kiedyś był w bezpiece olimpijczyków Wałęsa. To autyzm z izraela. 
