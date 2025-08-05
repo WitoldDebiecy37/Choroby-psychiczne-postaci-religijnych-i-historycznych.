@@ -12,3 +12,4 @@ Oni mają autyzm i schizfremie jak to wojsko czerwonych pod ścianę. Roadża si
 W serwerze TV jest heteroskualizm a Bełchatów i Warszawa to szmaty LGBT w naszym życiu na codzień tyncza tynkarzy i szmat kiboli facetów. Normalni są w serwerze TV AI. 
 Do chorób psychicznych zalicza się ślub dla ubogich rostania po 30 latach gediatria i spontaniczność i terapia na raka wywołana Harrp antenami to też są choroby cywilizacyjne od religijnych to dzicy ludzie. 
 Ci co się ożenili wzieli kredyty poszli do pracy pomylili się i zwolnikli ich z pracy i się rostali dostali schizfremi i porośli piórkami mają piórka w 4 literach. To ptaki się żenią nie ludzie. Ludzie musza mieć pieniedze aby się ożenić. A ubogi ślub i szal z damom to śluby od policji i wojska. Zegary niech płacżą i niech gra muzyka tak się koniczy schziofremia religijnych. 
+Do tego choroby psychiczne nauczycieli lewych szkuł zakaz lotto bo dyplomy zabierają za wygrane lotto. 
